@@ -1,4 +1,4 @@
-# Iptv-smarters-faire-le-bon-choix
+# Iptv smarters : faire le bon choix
 
 Abonnement IPTV pas cher ici  => https://rebrand.ly/hrysxjz
 
