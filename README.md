@@ -1,6 +1,6 @@
 # Iptv smarters : faire le bon choix
 
-Abonnement IPTV pas cher ici  => https://rebrand.ly/hrysxjz
+Abonnement IPTV pas cher ici  => https://rebrand.ly/328rlv5
 
 Tout savoir sur l'IPTV : une révolution dans le monde de la télévision
 L'IPTV (Internet Protocol Television) est en train de révolutionner la façon dont nous consommons la télévision. Grâce à cette technologie, vous pouvez accéder à des milliers de chaînes TV et de contenus multimédias directement sur votre téléviseur, ordinateur ou appareil mobile, en utilisant simplement votre connexion Internet.
